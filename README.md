@@ -9,6 +9,7 @@ heya! if you came from discord or ponytown, HIHIHI!! read this plss!!
 
 .
 
+<img src="https://i.redd.it/wk9qdfkijff51.jpg" alt="Petition for change the banner to the acearo flag. : r/aromanticasexual"/>
 # INTRO!!
 
 Hello! I'm Unknownz, or some might call me what im cosplaying as.
