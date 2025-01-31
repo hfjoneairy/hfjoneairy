@@ -9,6 +9,6 @@ heya! if you came from discord or ponytown, HIHIHI!! read this plss!!
 
 .
 
-# INFORMATION!!
+# INTRO!!
 
 Hello! I'm Unknownz, or some might call me what im cosplaying as.
