@@ -9,7 +9,8 @@ heya! if you came from discord or ponytown, HIHIHI!! read this plss!!
 
 .
 
-<img src="https://i.redd.it/wk9qdfkijff51.jpg" alt="Petition for change the banner to the acearo flag. : r/aromanticasexual"/>
+<img src="https://preview.redd.it/0e6d8p4nj4u81.png?width=640&amp;crop=smart&amp;auto=webp&amp;s=d0ceee85e28afa7b6264280de275a80c3715c0ff" alt="My take on a combined aroace flag : r/aromanticasexual"/>
+
 
 # INTRO!!
 
