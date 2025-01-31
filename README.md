@@ -26,3 +26,6 @@ Asexual/Aromantic transgender person, he/him is prefer.
 
 .
 
+i just like sprunki, im finding more fandoms as i speak..
+
+# BYI
