@@ -32,17 +32,24 @@ Asexual/Aromantic transgender person, he/him is prefer.
 
 i just like sprunki, im finding more fandoms as i speak..
 
+.
+<img src="https://i.pinimg.com/736x/7e/45/28/7e4528f04d8cc6f7cee0b3cf913cab58.jpg" alt="❝𝐛𝐚𝐧𝐧𝐞𝐫𝐬 𝐟𝐨𝐫 𝐝𝐢𝐬𝐜𝐨𝐫𝐝❞"/>
+
+
 # BYI
 i have anger issue, please dont anger me with nonsense or emojis.
 
-
+.
 
 please dont cuddle with me unless permission, due to having CD and TT.
 
-
+.
 
 i am scared to int, please int first. it makes me feel like im being notice.
 
-
+.
 
 please use tonetags [ ex: /srs /j or /nf ] 
+
+.
+
