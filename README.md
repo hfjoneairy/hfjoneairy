@@ -53,3 +53,9 @@ please use tonetags [ ex: /srs /j or /nf ]
 
 .
 
+dont be freaky around me, it may cause trigger to me.
+
+.
+
+sprunki shippers is fine, as longs its not "sky x a sprunki." "wenda x gray " and more ship i dont like.
+
