@@ -102,4 +102,8 @@ nsfw skin ( youre werid.)
 # FAMILY MEMBERS.
 i basically have one family member who has github.
 
-welcome.. (Scribblezs!)[https://github.com/Scribblezs]
+.
+
+welcome.. [Scribblezs!](https://github.com/Scribblezs)
+
+<img src="https://i.pinimg.com/736x/c3/8e/32/c38e32328e7eac92fcf6685648354b47.jpg" alt="༚̮・ ) | Cute cats, Cat icon, Cute headers for twitter"/>
