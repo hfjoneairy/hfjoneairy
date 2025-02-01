@@ -78,3 +78,19 @@ im just, stupid tbh/gen
 <img src="https://i.pinimg.com/originals/12/57/44/1257441d5fe0527fc54161972005299c.jpg" alt="Why you should have a cat on Twitter"/>
 
 
+# DNI
+people who dont support tt / cd or lgtq+ people. 
+
+.
+
+copied skin ( this goes with tut skin too. )
+
+.
+
+basic dni criteria
+
+.
+
+nsfw skin ( youre werid.)
+
+<img src="https://i.pinimg.com/1200x/97/96/ec/9796eccfdccdcae257987efa8cc3eea9.jpg" alt="Pin page"/>
