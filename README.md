@@ -59,3 +59,14 @@ dont be freaky around me, it may cause trigger to me.
 
 sprunki shippers is fine, as longs its not "sky x a sprunki." "wenda x gray " and more ship i dont like.
 
+.
+
+i may joke around, if ur uncomfortable, please tell me, i will try not to do it again.
+
+.
+
+i mixed up words, since i type fast.
+
+.
+
+im anxious if i meet new people.
