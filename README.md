@@ -69,4 +69,11 @@ i mixed up words, since i type fast.
 
 .
 
-im anxious if i meet new people.
+im anxious if i meet new people. it might take weeks to not be anxious around you.
+
+.
+
+im just, stupid tbh/gen
+
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQmUvm08uxXSHcino9fxlre0AVaLynlAF-rwLcqVHcIwDFi1cgR2770rSBtEUhXcGdm-9w&amp;usqp=CAU" alt="✫"/>
+
