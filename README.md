@@ -75,5 +75,6 @@ im anxious if i meet new people. it might take weeks to not be anxious around yo
 
 im just, stupid tbh/gen
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQmUvm08uxXSHcino9fxlre0AVaLynlAF-rwLcqVHcIwDFi1cgR2770rSBtEUhXcGdm-9w&amp;usqp=CAU" alt="✫"/>
+<img src="https://i.pinimg.com/originals/12/57/44/1257441d5fe0527fc54161972005299c.jpg" alt="Why you should have a cat on Twitter"/>
+
 
