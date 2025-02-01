@@ -33,12 +33,16 @@ Asexual/Aromantic transgender person, he/him is prefer.
 i just like sprunki, im finding more fandoms as i speak..
 
 # BYI
-i have aner issue, please dont anger me with nonsense or emojis.
+i have anger issue, please dont anger me with nonsense or emojis.
 
-.
+
 
 please dont cuddle with me unless permission, due to having CD and TT.
 
-.
 
-i am scared to int, please int first.
+
+i am scared to int, please int first. it makes me feel like im being notice.
+
+
+
+please use tonetags [ ex: /srs /j or /nf ] 
