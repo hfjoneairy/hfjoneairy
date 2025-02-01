@@ -22,6 +22,10 @@ i prefer my friends/myself not saying my age. As due to people exposing me in th
 
 .
 
+im a salvador-american, i speak english and spanish, im on my way to speak russian, ukrainan and japanese
+
+.
+
 Asexual/Aromantic transgender person, he/him is prefer.
 
 .
@@ -29,3 +33,12 @@ Asexual/Aromantic transgender person, he/him is prefer.
 i just like sprunki, im finding more fandoms as i speak..
 
 # BYI
+i have aner issue, please dont anger me with nonsense or emojis.
+
+.
+
+please dont cuddle with me unless permission, due to having CD and TT.
+
+.
+
+i am scared to int, please int first.
