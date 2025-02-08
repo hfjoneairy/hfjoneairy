@@ -74,7 +74,7 @@ im anxious if i meet new people. it might take weeks to not be anxious around yo
 
 .
 
-i may not get or understand you, i dont speak or understand much enlish so bear with me.
+i may not get or understand you, i dont speak or understand much english so bear with me.
 
 .
 
