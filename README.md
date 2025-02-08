@@ -30,7 +30,7 @@ Asexual/Aromantic transgender person, he/him is prefer.
 
 .
 
-i just like sprunki, im finding more fandoms as i speak..
+i just like sprunki and bfdi/bfb/tpot
 
 .
 <img src="https://i.pinimg.com/736x/7e/45/28/7e4528f04d8cc6f7cee0b3cf913cab58.jpg" alt="❝𝐛𝐚𝐧𝐧𝐞𝐫𝐬 𝐟𝐨𝐫 𝐝𝐢𝐬𝐜𝐨𝐫𝐝❞"/>
