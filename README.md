@@ -18,9 +18,7 @@ heya! if you came from discord or ponytown, HIHIHI!! read this plss!!
 
 Hello! I'm Unknownz, or some might call me what im cosplaying as. I prefer you calling me unknownz, my comfort game is ponytown. so this is gonna be mostly for pt people.
 
-.
 
-i prefer my friends/myself not saying my age. As due to people exposing me in the past..
 
 .
 
@@ -32,7 +30,7 @@ Asexual/Aromantic transgender person, he/him is prefer.
 
 .
 
-i just like sprunki and bfdi/bfb/tpot
+i just like bfdi/bfb/tpot and more osc shows
 
 .
 
