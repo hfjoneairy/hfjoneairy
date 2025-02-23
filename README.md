@@ -4,4 +4,4 @@
 
 hi guys!! i can see visitors count up there, pretty cool right? anyways check out my strawpage if you prefer
 
-callmewithmymephone.straw.page
+https://callmewithmymephone.straw.page/
