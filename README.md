@@ -37,3 +37,5 @@ i just like sprunki and bfdi/bfb/tpot
 .
 
 more about me in strawpage!! 
+<img src="https://media1.tenor.com/m/502GjS72N3IAAAAC/mephone4-inanimate-insanity-mephone4.gif" alt="a cell phone with a sad face and a sailboat on it &#39;s screen ."/>
+
