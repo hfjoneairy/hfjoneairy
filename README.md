@@ -1,6 +1,7 @@
 ![](https://api.visitorbadge.io/api/VisitorHit?user=officially-sevenfan&repo=officially-sevenfan-badge&countColor=%70F0FB)
 # *KNOCK KNOCK.*
-<img src="https://media1.tenor.com/m/gkOheQOqZBMAAAAC/mephone4-inanimate-insanity.gif" alt="a cartoon character of a cell phone with arms and legs is standing on a white surface ."/>!
+<img src="https://media1.tenor.com/m/gkOheQOqZBMAAAAC/mephone4-inanimate-insanity.gif" alt="a cartoon character of a cell phone with arms and legs is standing on a white surface ."/>
+
 "huh! what do you mean i copied someonee?!"
 
 🍦﹒    ੭ ꒰ ୨୧ ꒱ ⸝⸝
